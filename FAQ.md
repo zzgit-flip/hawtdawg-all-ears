@@ -14,8 +14,8 @@ Scroll down to the section called "Passions" and tell potential mates and friend
 When you’re done, click “Save Changes” to show the world.
 
 
-
-###### My breed isn't listed!
+#### Photos are nice and all, but I don’t see very well. How can I smell the other dogs?
  
-You can choose as many options as you want from the 190 dog breeds currently recognized by the American Kennel Club, but we know the world of dogs is much more diverse than that. 
-When editing your profile, just check “Other” and use the text box to say more.
+We regret that we are unable to offer our customers smell-o-vision at this time. 
+As soon as human technology catches up to dog noses, we’ll be sure to add a scent feature to the app. 
+In the meantime, why not meet up at the dog park to get a whiff of your new friend?
