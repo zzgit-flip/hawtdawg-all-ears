@@ -12,3 +12,10 @@ Showcase your best self—whether that means a fresh-from-the-groomer glamour sh
 Open the Hawt Dawg app and click on "Edit Profile." 
 Scroll down to the section called "Passions" and tell potential mates and friends all about the treats and toys that make your tail wag. 
 When you’re done, click “Save Changes” to show the world.
+
+
+
+###### My breed isn't listed!
+ 
+You can choose as many options as you want from the 190 dog breeds currently recognized by the American Kennel Club, but we know the world of dogs is much more diverse than that. 
+When editing your profile, just check “Other” and use the text box to say more.
